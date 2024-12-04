@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tricky313
 - I also use Scratch??????????? (codeywhizz is my username)
-- I have a failed yt channel (Scratch 3.0 Tutorials)
+- I had yt channel (Scratch 3.0 Tutorials)
 - I use replit rarely
 
 <!---
